@@ -1,1 +1,0 @@
-# tseringnorbu.dev
